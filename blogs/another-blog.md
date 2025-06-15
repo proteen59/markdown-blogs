@@ -1,12 +1,3 @@
----
-title: another blog
-description: A  summary of another blog
-image: https://i.ibb.co/PZxbNkF5/How-to-improve-your-handwriting-visual-selectiona.png
-date: 2025-05-01
-tags:
-  - nuxt
-  - supabase
----
 
 ### Things we know about Gregor's sleeping habits.
 

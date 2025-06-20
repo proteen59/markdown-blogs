@@ -1,6 +1,17 @@
+## Same Same But Different
 
-# One morning, when Gregor Samsa woke from troubled dreams.|
-||One morning, when Gregor Samsa woke from troubled dreams, he found himself *transformed* in his bed into a horrible [vermin](http://en.wikipedia.org/wiki/Vermin "Wikipedia Vermin"). He lay on his armour-like back, and if he lifted his head a little he could see his brown belly, slightly domed and divided by arches into stiff sections. The bedding was hardly able to cover **strong** it and seemed ready to slide off any moment. His many legs, pitifully thin compared with the size of the rest of him, link waved abouthelplessly as he looked. <cite>“What's happened to me?”</cite> he thought. It wasn't a dream. His room, a proper human room although a little too small, lay peacefully between its four familiar walls.
-## The bedding was hardly able to cover it.
+humans. unique. thinking. observing. reacting.
+there are uncountable variables to think of or predict there next move or experience but if you look from a macro perspective you will only find similarities. more and more similarities.
 
-It showed a lady fitted out with a fur hat and fur boa who sat upright, raising a heavy fur muff that covered the whole of her lower arm towards the viewer a solid fur muff into which her entire forearm disappeared..
+every human takes birth but to different environments
+~~every~~  most human gets parents but different different
+every human learns stuff necessary but it always differentiates from one another
+every human works, but no two human works the same
+every one gets married but never at the same age or with the same person
+this patterns keeps on going
+
+the pattern though same never exactly copies itself
+
+> [!quote] ### the variability life has is insane
+> #knowledge/quote/self 
+

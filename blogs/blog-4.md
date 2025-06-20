@@ -1,5 +1,13 @@
-### Things we know about Gregor's sleeping habits.
-- He always slept on his right side.
-- He has to get up early (to start another dreadful day).
-- He has a drawer and a alarm clock next to his bed.
-- His mother calls him when he gets up to late.
+## Dejavu
+
+Here's what i think it is.
+
+Our eyes capture data, and send them to the brain to process.
+The Brain processes the info and stores the data for later to be recalled.
+
+here chain looks like this
+input-process-save-recall
+
+in my opinion a Dejavu happens when the brain doesn't follow the chain.
+input-save-recall-process
+
